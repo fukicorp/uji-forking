@@ -25,7 +25,7 @@ YANG HARUS DILAKUKAN
 SUDAH BERHASIL
 --------------
 1. Fukicorp admin
-2. Ganti dengan nama kamu di sini!
+2. Choirudin
 3. Ganti dengan nama kamu di sini!
 4. Ganti dengan nama kamu di sini!
 5. Ganti dengan nama kamu di sini!
