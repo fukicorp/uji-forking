@@ -30,6 +30,6 @@ SUDAH BERHASIL
 4. Ganti dengan nama kamu di sini!
 5. Ganti dengan nama kamu di sini!
 6. Ganti dengan nama kamu di sini!
-7. Ganti dengan nama kamu di sini!
+7. Zaka Zaidan Azminur
 8. Ganti dengan nama kamu di sini!
 
