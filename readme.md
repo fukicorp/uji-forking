@@ -26,7 +26,7 @@ SUDAH BERHASIL
 --------------
 1. Fukicorp admin
 2. Choirudin
-3. Ganti dengan nama kamu di sini!
+3. Zaka Zaidan Azminur
 4. Ganti dengan nama kamu di sini!
 5. Ganti dengan nama kamu di sini!
 6. Ganti dengan nama kamu di sini!
