@@ -27,6 +27,8 @@ SUDAH BERHASIL
 1. Fukicorp admin
 2. Choirudin
 3. Zaka Zaidan Azminur
+3. Novian Habibie
+3. Muhamad Rizal Indrabayu
 3. novela spalo
 3. Abi Hafshin
 4. Ganti dengan nama kamu di sini!
